@@ -33,5 +33,8 @@ Too Egotistical for their own good
 Liars, Cheaters & Manipulators
 (I can tell when you're trying to gaslight or manipulate me,
 or if you're lying, fuck off.)
+
+Suicide baiters
+(suibating is just annoying and I hate it)
 ## Friendly Reminder <3
 ![Reminder](https://dni.zaynedrift.com/trans.png)
